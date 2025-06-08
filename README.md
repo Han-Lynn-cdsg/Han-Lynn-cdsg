@@ -25,7 +25,7 @@
   
   📫 How to reach me [hanlynnaung1997@gmail.com](mailto:hanlynnaung1997@gmail.com) 📧
   
-  📄 Know about my experiences [here](https://www.canva.com/design/DAGpwP6mQjk/J9LLl-QvCS5Q24XAvUrNtg/edit?utm_content=DAGpwP6mQjk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton) 📝
+  📄 Know about my experiences [here](https://www.canva.com/design/DAGpwP6mQjk/J9LLl-QvCS5Q24XAvUrNtg/view) 📝
  
   ⚡ Fun fact: **Defy yours limits!** 🌟
 </div>
